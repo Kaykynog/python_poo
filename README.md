@@ -1,0 +1,1 @@
+Foco força e fé!
